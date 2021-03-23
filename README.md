@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @khansa Mueen
 - 👀 I’m interested in Nothing.....🙄
 - 🌱 I’m currently learning Software eng...
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... please don't🤞 reach me thank you😊
 
 <!---
